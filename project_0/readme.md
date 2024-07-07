@@ -10,3 +10,39 @@
 :arrow_up:[к оглавлению][def]
 
 [def]: https://github.com/brom83/DS/blob/main/project_0/readme.md#Оглавление
+
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
+r
